@@ -1,3 +1,3 @@
-**🐝 [Tasting](https://www.tiktok.com/@gioeless) [like](https://www.instagram.com/gioeless1/) [fuze](https://twitter.com/gioeless1) [teaAA](https://open.spotify.com/user/22k4p4idg2u62flzdkwqvhnxy)**
+**🐝 Holi / Hi / Salut / Olá**
 
 [![Discord Presence](https://lanyard.cnrad.dev/api/480176818297503744)](https://discord.com/users/480176818297503744)
